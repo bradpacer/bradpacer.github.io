@@ -1,1 +1,0 @@
-# bradpacer.github.io
